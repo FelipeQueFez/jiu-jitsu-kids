@@ -57,11 +57,3 @@ Essential techniques to help kids **stay safe and defend themselves** in various
 - **Wall Choke Escape (One-Handed Attack)** *(Defesa de estrangulamento contra a parede - com uma mão)* – How to remove an opponent's grip and escape safely.  
 
 ---
-
-## 💪 Jiu-Jitsu Kids: Learning Objectives  
-✅ **Discipline & Respect** → Following instructions, listening, and respecting training partners.  
-✅ **Technical Growth** → Mastering fundamental positions, movements, and escapes.  
-✅ **Coordination & Strength** → Developing balance, core stability, and overall physical awareness.  
-✅ **Confidence & Problem-Solving** → Learning to stay calm under pressure and find solutions through technique.  
-
----
