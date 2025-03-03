@@ -49,8 +49,6 @@ Building confidence in **escaping from dominant positions**:
 - **Mount Escape** *(Defesa da montada)* – Using bridge (upa) and hip movement.  
 - **Side Control Escape** *(Defesa dos cem quilos)* – Creating space and recovering guard.  
 - **Knee on Belly Escape** *(Saída do joelho na barriga)* – Pushing away and replacing guard.  
-- **Half-Guard Recovery** *(Recuperação da meia-guarda)* – Escaping from bottom half-guard to a dominant position.  
-- **Standing Escape from Guard** *(Saída de guarda em pé)* – Breaking an opponent’s control and standing safely.  
 
 ### 6️⃣ Self-Defense Techniques  
 Essential techniques to help kids **stay safe and defend themselves** in various situations:  
